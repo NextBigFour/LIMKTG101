@@ -1,2 +1,0 @@
-# LIMKTG101
-LI Marketing 101
